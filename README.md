@@ -1,1 +1,1 @@
-# purrrfect-fit-privacy-policy
+# Purrrfect Fit Privacy Policy
